@@ -1,6 +1,6 @@
 
 ## RIDER/DOLL *!*
-i go by any pronouns but i'd much prefer he/she :3c
+i go by any pronouns but i'd much prefer he/him :3c
 HOW DO I DO TGIS
 <!--
 **dollkit/dollkit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
