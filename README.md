@@ -1,8 +1,8 @@
 
 ## RIDER/MACHINE *!*
 CERTIFIED ROBOT BOYTHING
-IT/HE UNLESS WE ARE CLOSE 🤖
-I LIKE ROBOTS AND OWLS
+__IT/HE__ UNLESS WE ARE CLOSE 🤖
+I LIKE ROBOTS AND OWLS,
 I MIGHT GO SILENT SOMETIMES OR NOT TALK DIRECTLY THROUGH CHAT
 <!--
 **dollkit/dollkit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
