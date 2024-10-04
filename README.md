@@ -1,9 +1,9 @@
 
-## RIDER/MACHINE *!*
-CERTIFIED ROBOT BOYTHING
-__IT/HE__ UNLESS WE ARE CLOSE 🤖
-I LIKE ROBOTS AND OWLS,
-I MIGHT GO SILENT SOMETIMES OR NOT TALK DIRECTLY THROUGH CHAT
+## RIDER *!*
+CERTIFIED BOYTHING
+__IT/HE__ UNLESS WE ARE CLOSE 🦇
+- 🦴 My main interests are Sonic the hedgehog, phighting, tower defense simulator, sprunki, deer, and owls! :3 
+
 <!--
 **dollkit/dollkit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
