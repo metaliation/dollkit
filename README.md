@@ -1,8 +1,10 @@
+![image](https://github.com/user-attachments/assets/5f54db10-06cd-461e-9a08-55155cd51b60)
 
 ## RIDER *!*
 CERTIFIED BOYTHING
 __IT/HE__ UNLESS WE ARE CLOSE 🦇
 - 🦴 My main interests are Sonic the hedgehog, phighting, tower defense simulator, sprunki, deer, and owls! :3 
+![image](https://github.com/user-attachments/assets/afd4fcdd-5b81-4f5e-aa5f-38cbbf06f9d5)
 
 <!--
 **dollkit/dollkit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
