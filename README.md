@@ -1,9 +1,12 @@
 ![image](https://github.com/user-attachments/assets/5f54db10-06cd-461e-9a08-55155cd51b60)
 
-## RIDER *!*
+ ## 🦴🦇 RIDER *!*
+![image](https://github.com/user-attachments/assets/26eedc5b-9cf4-4d41-9f2e-a1c762ba37e9)
 CERTIFIED BOYTHING
 __IT/HE__ UNLESS WE ARE CLOSE 🦇
-- 🦴 My main interests are Sonic the hedgehog, phighting, tower defense simulator, sprunki, deer, and owls! :3 
+- 🦴 My main interests are Sonic the hedgehog, phighting, tower defense simulator, sprunki, deer, and owls! :3
+  i usually sit in the roblox area by myself or with my bf,, i also might be afk so bare with me ;o;
+  im verryy awesome trust so dont be afraid to interact with me , i don't bite! >:3c 
 ![image](https://github.com/user-attachments/assets/afd4fcdd-5b81-4f5e-aa5f-38cbbf06f9d5)
 
 <!--
